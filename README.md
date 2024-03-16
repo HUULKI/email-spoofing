@@ -15,7 +15,7 @@
 
 ## Price
 
-- **Unlimited emails:** week $20 /  month $200
+- **Unlimited emails:** week $20 /  month $70
 
 
 ## [+] Contact :
